@@ -1,1 +1,0 @@
-# muhammetsoil.github.io
